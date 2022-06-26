@@ -1,0 +1,1 @@
+# kamen-skare-papir
